@@ -29,5 +29,5 @@ Franklin bjó í fátækrarhverfi með frænku sinni þangað til að hann flutt
 
 # Michael
 
-Michael er maður að fertugs
+Michael er maður á fimmtugs aldri sem er að fara í gegnum erfitt breytingarskeið. Michael á Konu sem heitir Amanda og tvö börn og þau heita Jimmy og Tracey. Michael kynntist Amanda á strippklúbbi og var hún ein af strippörunum. Michael var mikill vinur Trevor og í gamla daga voru þeir alltaf að ræna saman. Síðan laug Michael að öllum að hann væri dáinn og flutti hann með fjölskyldunni sinni burt því hann var orðinn hræddur um að eitthvað myndi gerast við þau. Michael og fjölskyldan skipti líka um nöfn til að fá nýja byrjun.
 
