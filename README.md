@@ -24,13 +24,12 @@ https://en.wikipedia.org/wiki/Controversies_surrounding_Grand_Theft_Auto_V
 
 # Trevor
 
-Trevor er sveitalubbinn í hópnum. Hann býr uppí sveit í hjólhýsi og keyrir um á gömlum pallbíl. Trevor á sitt eigið fyrirtæki sem framleiðir amfetamín. Trevor hefur aldrei verið við kvenmann kenntur og á hann engin börn. Hann hefur þekt Michael frá æsku og hafa þeir ávalt verið miklir mátar þangað til að Michael lét alla halda að hann væri dauður.
+Trevor er sveitalubbinn í hópnum. Hann býr upp í sveit í hjólhýsi og keyrir um á gömlum pallbíl. Trevor á sitt eigið fyrirtæki sem framleiðir amfetamín. Trevor hefur aldrei verið kenndur við konu og á þar með engin börn. Hann hefur þekkt Michael frá æsku og hafa þeir ávallt verið miklir mátar þangað til að Michael þóttist vera dauður.
 
 # Franklin 
 
-Franklin bjó í fátækrarhverfi með frænku sinni þangað til að hann flutti í flott stórt einbýlishús. Besti vinur Franklins er Lamar sem kemur honum í allskonar vandræði. Lamar á hund sem heitir Chop og er hann alltaf í pössun hjá Franklin. Hann lýtur mikið upp til Michaels og má segja að hann lýti á hann sem einhverskonar föður. Franklin vann við að endurheimta bíla fyrir Simeon sem á bílasölu.
+Franklin bjó í fátækrarhverfi með frænku sinni þangað til að hann flutti í stórt einbýlishús. Besti vinur Franklins heitir Lamar sem kemur honum í allskonar vandræði. Lamar á einnig hund sem heitir Chop og er hann oft í pössun hjá Franklin. Hann lítur mikið upp til Michaels og má segja það að hann líti á hann sem föður. Franklin vann við að endurheimta bíla fyrir Simeon sem á bílasölu.
 
 # Michael
 
-Michael er maður á fimmtugs aldri sem er að fara í gegnum erfitt breytingarskeið. Michael á Konu sem heitir Amanda og tvö börn og þau heita Jimmy og Tracey. Michael kynntist Amanda á strippklúbbi og var hún ein af strippörunum. Michael var mikill vinur Trevor og í gamla daga voru þeir alltaf að ræna saman. Síðan laug Michael að öllum að hann væri dáinn og flutti hann með fjölskyldunni sinni burt því hann var orðinn hræddur um að eitthvað myndi gerast við þau. Michael og fjölskyldan skipti líka um nöfn til að fá nýja byrjun.
-
+Michael er maður á fimmtugsaldri sem er að fara í gegnum erfiðar breytingar. Michael er kvæntur konu að nafni Amanda og á tvö börn sem heita Jimmy og Tracey. Michael kynntist Amöndu á strippklúbbi þar sem hún var ein af strippurunum. Michael og Trevor voru miklir vinir áður fyrr og voru þeir oft að ræna saman. Michael laug síðan að öllum að hann væri dáinn og flutti þar með því burt með fjölskyldunni sinni vegna þess að hann var hræddur um að eitthvað myndi gerast við þau. Seinna skiptu Michael og fjölskyldan um nöfn fyrir „nýja byrjun“.
